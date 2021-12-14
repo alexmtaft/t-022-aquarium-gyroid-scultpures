@@ -1,0 +1,1 @@
+Three Gyroid Sculptures by DaveMakesStuff on Thingiverse: https://www.thingiverse.com/thing:4838412
